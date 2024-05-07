@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Oluwaaferanmi
+- 👋 Hi, I’m @Oluwaferanmi
 - 👀 I’m interested in Everything
 - 🌱 I’m currently learning MAchine learning
 - 💞️ I’m looking to collaborate on all kinds of projects
