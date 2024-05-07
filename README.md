@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning MAchine learning
 - 💞️ I’m looking to collaborate on all kinds of projects
 - 
-- 📫 How to reach me denzelfroimfarbeyond@gmail.com
+- 📫 How to reach me denzelfromfarbeyond@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
